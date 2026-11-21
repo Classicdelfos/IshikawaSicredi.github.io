@@ -1,0 +1,1 @@
+# IshikawaSicredi.github.io
